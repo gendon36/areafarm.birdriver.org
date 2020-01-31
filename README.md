@@ -1,1 +1,0 @@
-# areafarm.birdriver.org
